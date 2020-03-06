@@ -1,0 +1,1 @@
+egyszerű lábléc
